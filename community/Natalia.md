@@ -1,5 +1,4 @@
-# Natalia Da Cruz Ibañez 
-**28 anos** 
+# Natalia Da Cruz Ibañez, **28 anos** 
 
 # FORMAÇÃO ACADÊMICA: 
 ANÁLISE E DESENVOLVIMENTO DE SISTEMAS
